@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @TheCorruptedGlitch
+- 👀 I’m interested in minecraft origins
+- 🌱 I’m currently learning modding
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me nowhere
+-
